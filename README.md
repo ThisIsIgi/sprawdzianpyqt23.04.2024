@@ -1,0 +1,1 @@
+# sprawdzianpyqt23.04.2024
